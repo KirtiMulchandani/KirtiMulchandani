@@ -40,7 +40,7 @@
 - 👯 I’m looking forward to collaborate on open source projects.
 - ✔ Ask me about anything, I am happy to help, only if the ball is in my court!😉<br>
 - Outside tech, I love to 🎵 listen to music, and 📆 explore new places.
-- 📫 Reach out to me at : **kirtimulchandani@gmail.com**
+- 📫 Reach out to me at : **kirtimulchandani02@gmail.com**
 - ⚡ Fun fact : I love MARVEL movies ✨ .
 
 
